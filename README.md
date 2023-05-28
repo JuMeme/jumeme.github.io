@@ -1,6 +1,6 @@
 # **CANDIDATURA ASTRIT JUNIOR MEHMETI**
 
-### Cliccare visualizzare per il contenuto desiderato.
+### Cliccare per visualizzare il contenuto desiderato.
 ___
 
 [ - Curriculum Vitae](https://drive.google.com/file/d/11O08jareX1CZBAkPoV-v7peBbWtgc3Nx/view?usp=sharing)
