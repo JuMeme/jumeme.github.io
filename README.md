@@ -1,11 +1,9 @@
-# **CANDIDATURA ASTRIT JUNIOR MEHMETI**
-
-### Cliccare per visualizzare il contenuto desiderato.
+# **VOTA BERGA - VOTAZIONI 27/10/2023**
 ___
 
-[ - Curriculum Vitae](https://drive.google.com/file/d/1Y58g5oi9_X5mfB95tZtStWKTAIjimSFD/view?usp=sharing)
-
-[ - Video Autocanditatura](https://youtu.be/6TgEiCFCZGI)
-
-[ - Lettera di Autocanditatura](https://drive.google.com/file/d/1WHdoQffPxhbHLXjESV1KMg6DXUZ0TZsb/view?usp=sharing)
+**Bergamelli Andrea**, amato ex-rappresentante di classe, si ricandida per il secondo anno di fila per compiere con entusiasmo e passione lo stesso ruolo.
+Già stabilito come ottimo leader l'anno scorso nella vecchia 2D è pronto ad udire ed agire nella maniera più opportuna ad ogni richiesta proveniente dai suoi compagni di classe.
+Vi promette il suo impegno per migliorare l’esperienza scolastica comunicando apertamente con i suoi colleghi, essendo trasparente su ogni questione e agendo come intermediario fra alunni e professori.
+Con la sua leadership, saremo sicuramente di essere in ottime mani.
+## Vota Berga.
 
